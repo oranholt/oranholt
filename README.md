@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @oranholt
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning how to Code
+- 💞️ I’m looking to collaborate on Nothing.
